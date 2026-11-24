@@ -9,4 +9,4 @@ This is an ongoing testing for creating a funny portfolio page.
 
 ## Contact Me
 
-[Message me on LinkedIn](https://www.linkedin.com/MusicMan798)
+[Message me on LinkedIn](https://www.linkedin.com/in/tyrone-whiston-b24b9a77/)
